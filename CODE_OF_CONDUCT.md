@@ -1,4 +1,4 @@
-# Éthique444
+# Éthique
 
 ## Avis de non-responsabilité
 
